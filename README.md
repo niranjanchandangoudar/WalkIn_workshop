@@ -1,3 +1,3 @@
 # walkinGitWorkshop
-Dont read my mind!
+Dont read my mint!
 whateverccc
